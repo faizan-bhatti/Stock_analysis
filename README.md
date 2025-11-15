@@ -1,0 +1,1 @@
+Srtock_analysis_assignment
